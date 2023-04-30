@@ -1,5 +1,5 @@
 # 💫 About Me:
-Computer Engineering student<br>Always seeking for learning<br>Limitless
+Computer Engineering student<br>seeking for learning<br>Limitless
 
 
 
